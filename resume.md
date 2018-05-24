@@ -1,9 +1,9 @@
 # Siti Nur Hasanah
 Mahasiswa PPKU IPB
 
-*Asrama Mahasiswa PPKU IPB A4\
-*+62 831-6760-0817*                                                                                                                                                                                                 
-hasanahsitinur916@gmail.com*
+*Asrama Mahasiswa PPKU IPB A4* \
+*+62 831-6760-0817* \
+*hasanahsitinur916@gmail.com* 
 
 ## Pendidikan
 ### Institut Pertanian Bogor
